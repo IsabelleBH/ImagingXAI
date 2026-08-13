@@ -11,7 +11,7 @@ https://app.box.com/s/dotdh6yzfu2iwzsuoxwwf8flwg9b8uov
 
 https://app.box.com/s/p994ikcw67gw5fiepmyn7ngpmrwt6vrj
 
-Excluded from the review, in 3 parts
+Excluded from the review (this is for the literature review only, papers may be referenced elsewhere in the thesis), in 3 parts
 
 https://app.box.com/s/zuinsqja4taozopc4l9f4ycctvhogu3o
 
